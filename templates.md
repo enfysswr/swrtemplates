@@ -97,6 +97,14 @@ I’m sorry to hear that you aren’t happy with the May 2019 timetable changes 
 I can advise that unfortunately the amount of Peak time calls at Clapham Junction have been reduced to meet the ever growing demand on our network. With each call at Clapham Junction, less paths are available for customers travelling to London Waterloo and therefore we have made these changes to accommodate the demand for additional services to London Waterloo.
 I’m sorry that this inconveniences you, but we must unfortunately strike a balance with the allocation of the limited paths for trains between Clapham Junction and London Waterloo to ensure we’re able to operate at maximum capacity for the majority of our customers.
 
+## FRM Plt 1&2 Toilets 
+
+Unfortunately, the toilets at Fareham on Platforms 1 and 2 have unfortunately been subject to drainage issues and this is now in the hands of the station property team who are in the process of arranging a more powerful macerator to be installed so that the toilets can be put back into operation on these platforms.  
+
+I am sorry for the inconvenience caused in the meantime. 
+
+ 
+
 
 
 
