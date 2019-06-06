@@ -108,6 +108,7 @@ I am sorry for the inconvenience caused in the meantime.
  
  I’m sorry to hear that you’re unhappy with the short formations and uncomfortable journeys since the May 2019 timetable change has come into effect. In order to continue to meet our franchise obligations we have increased the number of services. Unfortunately, due to unforeseen circumstances, the introduction of the Class 442 trains to support the timetable changes has been delayed and this has caused a shortage of rolling stock and a shortage and the subsequent short forms.
 I’m pleased to advise that the problems are close to being resolved and the introduction of the Class 442 trains will free up stock being used for the additional services and trains will return once again to their intended length.
+
 Once again, I’m sorry for any inconvenience caused in the meantime.
 
 
