@@ -113,6 +113,21 @@ Once again, I’m sorry for any inconvenience caused in the meantime.
 
 
 
+## Strike Explanation and DR offer
+
+We’re very sorry that your journeys have been disrupted due to strike action, which has been hugely disappointing, given the positive talks we’ve had with local union representatives. We’re asking the RMT to work with us to deliver the best possible service to our customers, and we’ve made it clear that we’re guaranteeing jobs, salaries and the terms and conditions of our guards. In fact, as we expand our fleet and services, we’ll be creating more jobs.
+The RMT is concerned that the introduction of new modern suburban trains later this year, will reduce the need for guards. However, this is simply not true, although we want to discuss with them how we can keep customers moving if a guard isn’t available. The framework proposal we have offered, which applies only to our new 701 stock, would continue to see a guard rostered on all services. All other trains will continue to require a guard whilst in passenger service at all times.
+During the action, we have had to implement amended timetables based on the number of train crew available and despite our best efforts, we weren’t able to provide a train service on your route.
+
+
+We’re also offering Delay Repay for customers affected by delays against the amended ‘strike timetable’. If you were delayed for 15 minutes or more, you could be entitled to compensation. Please use the form at the link below to make a claim:
+
+
+https://delayrepay.southwesternrailway.com
+
+
+Or alternatively you can collect a paper form from any South Western Railway staffed Ticket Office.
+
 
 
 
