@@ -130,6 +130,18 @@ https://delayrepay.southwesternrailway.com
 
 Or alternatively you can collect a paper form from any South Western Railway staffed Ticket Office.
 
+##Dangerous Overcrowding 
+
+I appreciate that travelling on an overcrowded service is not ideal and I note your point about safety and overcrowding. All the trains we operate do so in full compliance with all safety requirements and are safe to operate on all the routes they are passed to run on. Every train is designed to operate safely, even when full and standing, with no adverse effect on structural integrity and braking performance. There is no statutory limit on the numbers travelling on a train and to enforce such a limit would be difficult unlike a bus or plane, where access is restricted to a particular door for example. Many stations are unstaffed and trains have many doors all providing access. A study by the HSE concluded that overcrowding on trains was not an issue of safety per se but was an issue of comfort. 
+
+
+We want our customers to travel in comfort and I very much regret your disappointment.  Crowded trains, are a particularly difficult problem for us on a daily basis and this is exacerbated when there are events held on our network. We are working with the Department for Transport and Network Rail to improve capacity and seek a long-term solution to the problem. I am afraid however that any solutions will need to be considered by the Department for Transport and Network Rail and be considered amongst other rail investment priorities but South Western Railway is doing what it can within the existing franchise to minimise overcrowding as much as possible.
+
+
+I am sorry that on this occasion we let you down,  and I do hope future journeys prove more enjoyable.
+
+
+
 
 
 
